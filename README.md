@@ -2,7 +2,7 @@
 - 👀 I’m interested in -Web Development 
 - 🌱 I’m currently learning- Full Stack Web Development
 - 💞️ I’m looking to collaborate with Front-End Web-Developers
-- 📫 How to reach me --you easily reach me from my whatsaap no.-9113724211, OR From my Email-pankajkr.vitj@gmail.com
+- 📫 How to reach me --you easily reach me from my whatsaap no.-9113724211, OR From my Email-   pankajkr.vitj@gmail.com
 - 😄 Pronouns: He/Him
 
 
