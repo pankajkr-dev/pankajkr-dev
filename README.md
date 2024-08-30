@@ -6,7 +6,7 @@
 - 😄 Pronouns: He/Him
 
 
-                       Thank you and keep visit on GitHub Profile Again and Again
+  Thank you and keep visiting on GitHub Profile Again and Again
 
 <!---
 pankajkr-dev/pankajkr-dev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
